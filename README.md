@@ -6,7 +6,7 @@ I. INTRODUCTION
 I.1 This is a "Term of Service" document for the purpose of giving more information to previous TOS stated in my card (https://4rtem1xcc.carrd.co/). Free to use for any other TOS inspirations/copy pastes. 
  
 II. DEFINES.
-II.1 Artist: "duzme", "octawave(浪)", "artemis" (https://guns.lol/4rtemisee)
+II.1 Artist: "duzme", "octawave(浪)", "artemis" (https://guns.lol/dt0z)
 II.2 Client(s)/Commissioner(s): Any type of commissioner(s).
    (a) Heavily restricted with commissioners under the age of 13.
    (b) Not necessary to provide legit, but recommended to.
